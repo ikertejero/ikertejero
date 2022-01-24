@@ -1,5 +1,8 @@
 ![Header Image](https://i.imgur.com/IY6kheb.png)
-## 20 | Madrid & Waterloo
+## Iker Tejero Merino
+
+20 | Madrid & Waterloo
+
 Computer Engineering & Management - UC3M & UWaterloo
 
 ₿lockchain & Crypto Enthusiast.
