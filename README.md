@@ -3,8 +3,8 @@
 
 20 | Madrid & Waterloo
 
-Computer Engineering & Management - UC3M & UWaterloo
+Computer Engineering & Management - UC3M | UWaterloo | Aalto
 
-₿lockchain & Crypto Enthusiast.
+₿itcoin Enthusiast.
 
 Twitter: [@ikertejero](https://twitter.com/ikertejero)
