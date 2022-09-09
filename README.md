@@ -1,9 +1,9 @@
 ![Header Image](https://i.imgur.com/IY6kheb.png)
 ## Iker Tejero Merino
 
-20 | Madrid & Waterloo
+21 | Madrid & Waterloo
 
-Computer Engineering & Management - UC3M | UWaterloo | Aalto
+Computer Engineering @ UC3M | UWaterloo | Aalto
 
 ₿itcoin Enthusiast.
 
