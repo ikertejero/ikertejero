@@ -2,7 +2,4 @@
 ## Iker Tejero Merino
 
 Computer Engineering @ UC3M | UWaterloo | Aalto
-
-₿itcoin Enthusiast.
-
 Twitter: [@ikertejero](https://twitter.com/ikertejero)
